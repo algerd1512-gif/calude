@@ -1,6 +1,6 @@
 # Kinh Tế Học Của Việc Sở Hữu Một Công Viên Nước
 
-Vậy là bạn muốn mở một công viên nước. Trời nóng quanh năm, người ta thích nước, cứ xây bể và máng trượt rồi đứng bán vé, tiền vào đều như thuỷ triều. Điều đó đúng, gần như vậy. Chỉ trừ một chuyện. Nếu bạn đi khắp Việt Nam tìm một công viên nước từng đình đám rồi hỏi nó bây giờ ra sao, phần lớn câu trả lời sẽ là. Đóng cửa. Bỏ hoang. Hoặc bị đập bỏ. Hết video này, bạn sẽ hiểu chính xác vì sao một ngành nghe đơn giản đến vậy lại có tỷ lệ sập tiệm cao đến khó tin, tiền thật sự chảy về đâu khi bạn đã mua vé, và vì sao với những tập đoàn lớn nhất nước, bản thân cái công viên nước đôi khi còn không cần có lãi.
+Vậy là bạn muốn mở một công viên nước. Trời nóng quanh năm, người ta thích nước, cứ xây bể và máng trượt rồi đứng bán vé, tiền vào đều như thuỷ triều. Nhưng sự thật thì không hẳn như vậy. Nếu bạn đi khắp Việt Nam tìm một công viên nước từng đình đám rồi hỏi nó bây giờ ra sao, phần lớn câu trả lời sẽ là. Đóng cửa. Bỏ hoang. Hoặc bị đập bỏ. Hết video này, bạn sẽ hiểu chính xác vì sao một ngành nghe đơn giản đến vậy lại có tỷ lệ sập tiệm cao đến khó tin, tiền thật sự chảy về đâu khi bạn đã mua vé, và vì sao với những tập đoàn lớn nhất nước, bản thân cái công viên nước đôi khi còn không cần có lãi.
 
 Trước tiên, một công viên nước giá bao nhiêu. Câu trả lời phụ thuộc hoàn toàn vào việc bạn định làm một cái ao bơi có cầu trượt, hay một công trình cỡ khu đô thị.
 
