@@ -5,11 +5,11 @@
 
 ---
 
-Vậy là bạn muốn sở hữu một siêu thị. Một nơi có máy lạnh, có xe đẩy, có hai mươi nghìn mã hàng xếp thẳng tắp trên kệ, và tối thứ bảy nào cũng có hàng dài người đứng chờ ở quầy thu ngân. Nghe như một cỗ máy đếm tiền. Không hẳn vậy.
+Vậy là bạn muốn sở hữu một siêu thị. Vài trăm tỷ đồng chắc chắn không phải vấn đề với bạn. Chỉ là có một sự thật về con số mà không siêu thị nào in lên tờ rơi khuyến mãi, đó là trong cả tòa nhà, người trực tiếp bán hàng cho bạn lại thường là người giữ lại ít tiền lời nhất trên mỗi đồng doanh thu.
 
-Năm 2020, đại siêu thị Emart ở quận Gò Vấp, Thành phố Hồ Chí Minh, bán được khoảng 1.650 tỷ đồng hàng hóa. Tiền lời của cả năm là 43 tỷ đồng. Nghĩa là cứ mỗi 100.000 đồng khách trả ở quầy thu ngân, chủ siêu thị giữ lại khoảng 2.600 đồng. Cùng thời gian đó, có một công ty Nhật Bản gần như không tự tay bán bó rau nào, nhưng trong năm tài chính 2024 đã thu về khoảng 3.176 tỷ đồng doanh thu tại Việt Nam và giữ lại hơn 750 tỷ đồng lợi nhuận hoạt động. Tính ra hơn 2 tỷ đồng mỗi ngày. Công ty đó là Aeon Mall, và việc chính của họ là cho người khác thuê mặt bằng quanh một cái siêu thị.
+Năm 2020, đại siêu thị Emart ở quận Gò Vấp, Thành phố Hồ Chí Minh, bán được khoảng 1.650 tỷ đồng hàng hóa, nhưng tiền lời của cả năm chỉ là 43 tỷ đồng. Nghĩa là cứ mỗi 100.000 đồng khách trả ở quầy thu ngân, chủ siêu thị giữ lại khoảng 2.600 đồng. Trong khi đó, có một công ty Nhật Bản gần như không tự tay bán bó rau nào, nhưng trong năm tài chính 2024 đã thu về khoảng 3.176 tỷ đồng doanh thu tại Việt Nam và giữ lại hơn 750 tỷ đồng lợi nhuận hoạt động, tính ra hơn 2 tỷ đồng mỗi ngày. Công ty đó là Aeon Mall, và việc chính của họ là cho các cửa hàng khác thuê mặt bằng xung quanh một cái siêu thị.
 
-Người bán hàng giữ lại chưa tới 3 đồng trên mỗi 100 đồng. Người cho thuê chỗ giữ lại gần 24 đồng.
+Người bán hàng giữ lại chưa tới 3 đồng trên mỗi 100 đồng doanh thu, còn người cho thuê chỗ giữ lại gần 24 đồng.
 
 Hết video này, bạn sẽ hiểu vì sao một siêu thị lớn thực chất là ba doanh nghiệp chồng lên nhau trong cùng một tòa nhà. Một quỹ tiền mặt không cần giấy phép ngân hàng, một công ty cho thuê kệ hàng, và một ông chủ nhà. Còn quầy rau ở tầng trệt chỉ là lý do để bạn bước qua cửa.
 
