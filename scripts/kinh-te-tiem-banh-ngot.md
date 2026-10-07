@@ -36,7 +36,7 @@ Mô hình thứ hai là bánh đặt trước, mà phần lớn là bánh kem si
 
 Đây là điểm mấu chốt. Chiếc tủ kính tạo ra lượt khách, tạo ra mùi thơm, tạo ra lý do để người đi đường nhớ tới tiệm của bạn. Nhưng chính những đơn đặt trước, nơi rủi ro hàng hủy gần như bằng không và giá bán cao hơn, mới là nơi tiền lời dễ thở hơn. Chiếc tủ kính, nói cho đúng, là một tấm biển quảng cáo mà bạn phải nướng lại từ đầu mỗi sáng.
 
-Bên trong chiếc bánh kem, thứ quyết định lời lỗ nhiều nhất không phải bột mì hay trứng, mà là kem. Một hộp kem sữa tươi whipping cream Anchor một lít, nhập từ New Zealand, có giá khoảng 139 nghìn đến hơn 200 nghìn đồng tùy nơi bán. Một hộp kem thực vật Rich's 454 gam chỉ khoảng 27 nghìn đồng. Tính theo giá, kem thực vật rẻ hơn khoảng năm đến bảy lần. Hai loại này khác nhau về bản chất, một loại làm từ sữa bò, một loại làm từ dầu thực vật và đậu nành, khác nhau về vị, về độ tan trong miệng, và về độ bền khi trang trí ngoài trời nắng. Đây là lý do cùng một chiếc bánh kem cỡ 20 phân, có tiệm bán 150 nghìn, có tiệm bán gấp năm, gấp sáu lần mà vẫn đông khách. Cuộc chiến giá bánh kem ở Việt Nam, phần lớn, là cuộc chiến giữa hai hộp kem này, và giữa việc khách hàng có phân biệt được chúng hay không.
+Bên trong chiếc bánh kem, nguyên liệu đắt nhất thường là kem. Một hộp kem sữa tươi whipping cream Anchor một lít, nhập từ New Zealand, hiện có giá khoảng 175 nghìn đến 215 nghìn đồng tùy nơi bán. Rich's, cái tên mà dân làm bánh vẫn gắn với kem thực vật, cũng bán dòng kem sữa 38% béo với giá khoảng 198 nghìn một lít. Dòng kem pha Versatie của hãng này rẻ hơn, khoảng 145 đến 160 nghìn một lít. Tính trên cùng một lít, kem pha chỉ rẻ hơn kem sữa khoảng 15 đến 30%. Vậy mà cùng một chiếc bánh kem cỡ 20 phân, có tiệm bán dưới 200 nghìn, có tiệm bán từ 700 nghìn trở lên. Khoảng cách gấp bốn, gấp năm lần đó lớn hơn rất nhiều so với chênh lệch giá một hộp kem. Phần chênh còn lại nằm ở những thứ không in trên bao bì, đó là tay nghề trang trí, số giờ người thợ bỏ ra cho một chiếc bánh, tên tuổi của tiệm, và việc khách hàng có tin rằng mình đang ăn kem sữa thật hay không. Hộp kem chỉ quyết định một phần giá vốn. Phần lớn tiền lời của bánh kem nằm ở những thứ khách không cân đo được.
 
 Bây giờ hãy thêm yếu tố thứ ba, thứ biến tiệm bánh từ một cửa hàng bình thường thành một doanh nghiệp theo mùa. Lịch của một tiệm bánh ngọt không có mười hai tháng đều nhau. Nó có ngày mười bốn tháng hai, ngày mùng tám tháng ba, ngày hai mươi tháng mười, Giáng sinh, Tết dương lịch, và đỉnh cao nhất là Tết Trung thu. Xen giữa là 365 ngày sinh nhật của tất cả mọi người trong khu phố, rải đều nhưng không ồ ạt.
 
@@ -92,7 +92,7 @@ Những con số trong video được tổng hợp từ nhiều nguồn khác nh
 
 ## ⚠️ CẦN KIỂM CHỨNG TRƯỚC KHI LỒNG TIẾNG
 
-- **Giá kem Anchor (139k–200k/lít) và Rich's (~27k/454g):** chụp lại giá trên một trang bán nguyên liệu làm bánh vào ngày thu âm, ghi ngày đó trong phần mô tả video.
+- **Giá kem (tra ngày 7/10/2026):** Anchor 1L 175.000–215.000đ, Rich's Dairy Whipping Cream 38% 1L 198.000đ (cửa hàng Rich's), Rich's Versatie 1L 145.000–160.000đ. Ghi ngày tra trong phần mô tả video.
 - **Mondelez Kinh Đô "gần 100.000 điểm bán":** có thông cáo khác ghi hơn 90.000 điểm. Trong bài đã đọc là "theo Mondelez Kinh Đô".
 - **Ba kịch bản lời lỗ:** là mô hình minh họa, không phải số của một tiệm có thật. Phép tính đã kiểm lại:
   - KB1: chi phí 26 + 4 + 14 + 5 + 3 + 4 + 8 = 64 triệu, lãi 11 triệu/tháng. Cả năm 132 + 35 (mùa lễ) ≈ 165 triệu. Doanh thu 900 + 90 = 990 triệu, dưới ngưỡng 1 tỷ.
