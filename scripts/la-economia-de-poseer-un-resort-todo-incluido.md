@@ -1,0 +1,127 @@
+# La Economía de Poseer un Resort Todo Incluido
+
+Así que quieres tener un resort todo incluido. La idea parece sencilla. El cliente paga una sola vez y después come, bebe y se tira en la piscina todo lo que quiera durante una semana. Cualquiera que haya visto a un turista frente a un buffet de desayuno sabe quién parece ganar en ese trato. Y aun así, en 2024, los resorts de una sola empresa del Caribe le sacaron un margen operativo del 34% a ese mismo turista. Parece el negocio más fácil de quebrar del mundo. No lo es.
+
+Al final de este video vas a entender por qué el cliente paga por adelantado una comida que en buena parte nunca se va a comer, quién se queda con el dinero de verdad, y por qué la marca más famosa de este negocio acaba de vender sus propios hoteles y aun así sigue cobrando por ellos.
+
+Empecemos por lo básico. ¿Cuánto cuesta esto?
+
+Un resort todo incluido no se compra como se compra una casa. Se construye o se compra entero, con playa, cocinas industriales, siete u ocho restaurantes, bares, teatro y una planta de tratamiento de agua. Y el precio se mide por habitación, porque así lo mide la industria.
+
+En la parte más alta del mercado está el lujo extremo. En la Riviera Maya, en México, Grupo Xcaret levantó La Casa de la Playa, un hotel de apenas 63 suites con una inversión de 85 millones de dólares. Eso es más de un millón trescientos mil dólares por suite. El propio grupo lo presentó como la mayor inversión por habitación hecha en México hasta entonces.
+
+En el segmento grande y más común, los números bajan, pero no tanto. El NH Riviera Cancún, en Puerto Morelos, costó unos 130 millones de dólares para 550 habitaciones. Unos 236.000 dólares por cuarto. El Hotel Xcaret México, que abrió en 2017, costó alrededor de 330 millones de dólares para 900 habitaciones. Unos 367.000 dólares por cuarto.
+
+Y luego está el nivel donde ya no compras un hotel, compras una cadena. En febrero de 2025, Hyatt anunció la compra de Playa Hotels and Resorts por unos 2.600 millones de dólares, deuda incluida. Playa tenía entonces 24 resorts y 8.627 habitaciones repartidas entre México, Jamaica y República Dominicana.
+
+Así que la entrada realista a este negocio, para un resort de tamaño normal en el Caribe, ronda entre 200.000 y 400.000 dólares por habitación. Con 500 habitaciones, que es un tamaño bastante habitual en Punta Cana o Cancún, estás hablando de entre 100 y 200 millones de dólares antes de recibir al primer huésped.
+
+Sé que el dinero no es problema para ti. Lo que sí es un problema es cómo entras.
+
+Hay tres caminos, y casi nadie los recorre como se imagina.
+
+El primero es construir desde cero. Compras terreno frente al mar, consigues los permisos ambientales, que en México pasan por una manifestación de impacto ambiental ante la Semarnat, y construyes durante dos o tres años sin ingresar un solo dólar. Así empezó Punta Cana. En 1969, un abogado neoyorquino llamado Theodore Kheel y un joven dominicano de 24 años llamado Frank Rainieri compraron un pedazo enorme de selva y playa en el extremo este de República Dominicana, donde no había carreteras, ni luz, ni agua corriente. En 1971 abrieron el Punta Cana Club con diez cabañas y una pista de aterrizaje de tierra. Después se dieron cuenta de que ningún turista iba a llegar hasta ahí sin un aeropuerto de verdad, así que construyeron uno. Rainieri contó después que les llevó casi ocho años y tres gobiernos conseguir la autorización, sin financiamiento del Estado. Hoy el Aeropuerto Internacional de Punta Cana recibe a más de la mitad de todos los turistas que llegan en avión al país. Ese es el camino desde cero. Funciona, si tienes cuarenta años de paciencia.
+
+El segundo camino es comprar un resort que ya existe. Es más rápido y más caro. Pagas por un negocio que ya tiene clientes, ya tiene contratos con agencias y ya tiene problemas que el vendedor no te contó.
+
+El tercer camino es el que usa casi todo el mundo con dinero serio. Tú pones el edificio y una cadena pone la marca y la operación. El dueño del ladrillo y el dueño del logo casi nunca son la misma persona. Tú cargas con la deuda, los huracanes y las reformas. La cadena cobra comisiones por gestionar, por usar su nombre y por llenarte las habitaciones con su sistema de reservas. Guarda esta idea, porque vamos a volver a ella al final.
+
+Y en el Caribe hispanohablante, ese dueño del logo habla con acento español. Según el ministro de Turismo dominicano, más del 45% de todas las habitaciones de hotel del país son de capital español. Riu, Barceló, Iberostar, Meliá y Bahía Príncipe, del Grupo Piñero, dominan buena parte de Punta Cana. Riu, por ejemplo, cerró 2024 con 4.082 millones de euros de ingresos brutos, 98 hoteles, seis coma siete millones de huéspedes y una ocupación media del 89%. Grupo Piñero facturó 987 millones de euros ese mismo año, su récord histórico.
+
+Así que ya tienes el edificio. Ahora viene la pregunta de verdad. Si todo es gratis, ¿de dónde sale el dinero?
+
+Lo primero que hay que entender es que en un resort todo incluido nada es gratis. Todo está pagado. Y está pagado mucho antes de que tú llegues.
+
+Un hotel normal cobra por habitación. Un todo incluido cobra por persona. La tarifa ya trae dentro la cama, la comida, las bebidas, el gimnasio, el espectáculo de la noche y el animador que te obliga a bailar en la piscina a las cuatro de la tarde. En la industria a eso lo llaman el paquete. Y el paquete casi siempre se paga semanas o meses antes del viaje, a través de una agencia o de un operador turístico. Es decir, el resort tiene tu dinero en el banco cuando tú todavía estás eligiendo bañador.
+
+Pero el truco central no es el adelanto. Es el promedio.
+
+Piensa en un gimnasio. El gimnasio te cobra una cuota mensual porque sabe que vas a ir mucho menos de lo que prometiste en enero. Si todos los socios fueran todos los días, el gimnasio quebraría en un mes. El resort todo incluido funciona igual, solo que con langosta.
+
+El precio del paquete no se calcula con lo que podría comerse el huésped más hambriento. Se calcula con lo que se come el huésped promedio. Y el huésped promedio sobreestima muchísimo su capacidad. Para cada cliente que se toma quince cócteles al día hay una pareja con un bebé que no pasa de dos jugos de naranja. Para cada adolescente que repite cuatro veces el buffet hay una señora que desayuna fruta y se va de excursión. El resort no necesita que nadie coma poco. Solo necesita que, sumando a todos, la cuenta salga.
+
+Y la cuenta sale porque el resort sabe exactamente cuánta gente va a comer cada día. Un restaurante normal no sabe si mañana vendrán cincuenta clientes o doscientos. Un resort con 500 habitaciones sabe con semanas de anticipación cuántas personas va a tener, qué edad tienen y de qué país vienen. Compra la comida por toneladas, cocina en cadena y tira mucho menos de lo que parece. El buffet que a ti te parece un derroche es, visto desde la oficina, uno de los sistemas de cocina más previsibles del sector.
+
+Hay un detalle que la industria reconoce abiertamente. En un todo incluido, cada comida que el huésped se salta y cada copa que no pide va directo a la ganancia del dueño. Por eso muchos resorts se asocian con empresas de excursiones. La visita al parque acuático, la lancha a la isla o el paseo a caballo te sacan del hotel justo a la hora de comer. Y en muchos casos el resort se lleva una comisión por la excursión. Te cobra por no darte de comer.
+
+Ahora, la segunda capa. Todo incluido nunca quiere decir absolutamente todo.
+
+Dentro del paquete entran el ron de la casa, el vino de la casa y los restaurantes de la casa. Fuera del paquete quedan el vino de la carta buena, el licor de marca premium, la cena privada en la playa, el masaje, la boda, la habitación con mayordomo y, a veces, la conexión rápida a internet. La industria lo llama ingreso fuera del paquete. Y hay una razón psicológica por la que funciona mejor aquí que en un hotel normal. El cliente ya pagó el viaje, ya siente que está ahorrando, y por eso le cuesta mucho menos decir que sí a un extra de 150 dólares.
+
+Pero aquí conviene no exagerar. Esa capa existe, pero no es la principal. En 2024, en los resorts comparables de Playa Hotels, el ingreso neto fuera del paquete fue de unos 97,6 millones de dólares sobre un ingreso neto total de unos 762 millones. Alrededor del 13%. Es dinero real, pero no es el corazón del negocio. El corazón sigue siendo el paquete. La diferencia está en que el paquete se cobra por adelantado, se calcula con promedios y se gasta dentro de un sistema que el resort controla de punta a punta.
+
+Y eso nos lleva a la tercera capa, la más importante para entender a quién beneficia este modelo. El resort todo incluido está diseñado para que tu dinero no salga de sus muros.
+
+Un turista que se aloja en un hotel normal en el centro de una ciudad sale a cenar, toma un taxi, compra en el mercado y deja propina en el bar de la esquina. Un turista con pulsera no tiene ningún motivo para salir. Ya pagó la cena. En República Dominicana, el Banco Central calculó que el gasto diario promedio de un turista extranjero fue de ciento setenta dólares con noventa y cuatro centavos en 2025, con una estadía media de siete coma ochenta y cinco noches. Suena a mucho dinero entrando al país. Pero según datos del propio Banco Central de 2018, más del 70% del consumo de los turistas no residentes se iba a alojamiento, comida y bebida, en su mayoría dentro del propio complejo.
+
+Es como un aeropuerto, solo que te quedas una semana y el que eligió quedarse encerrado fuiste tú.
+
+Hasta aquí parece un negocio redondo. Y en un buen año lo es. Playa Hotels reportó en 2024 un ingreso neto por paquete de trescientos treinta y dos dólares con veinte centavos por habitación disponible y por noche, con una ocupación del 73,6%. Sus resorts propios generaron 302,8 millones de dólares de beneficio operativo antes de impuestos, intereses y depreciación. Un margen del 34%.
+
+Entonces, ¿por qué sigue siendo un negocio despiadado?
+
+Porque el mismo modelo que te da ese margen en un buen año te deja contra las cuerdas en uno malo.
+
+Un hotel normal, cuando baja la ocupación, cierra un piso y despide a parte del personal. Un todo incluido no puede hacer eso tan fácil. Si tienes 300 huéspedes en vez de 900, igual tienes que abrir el buffet, mantener los bares funcionando, pagar al equipo de animación y montar el espectáculo de la noche. El cliente pagó por todo incluido, y todo incluido incluye que haya algo abierto. Los analistas del sector lo explican así: los costos fijos son más altos que en un hotel convencional. Eso significa que, una vez superas la ocupación mínima, cada huésped extra es casi pura ganancia. Y que, por debajo de esa ocupación, cada noche te va hundiendo.
+
+En 2020, ese mecanismo funcionó al revés con toda su fuerza. Playa Hotels tuvo que suspender temporalmente la operación de todos sus resorts. Cerró el año con una pérdida neta de 262,4 millones de dólares. En el primer trimestre ya había anunciado la venta de dos resorts por 60 millones para reforzar la caja. Ese mismo año, en Quintana Roo, el estado de Cancún y la Riviera Maya, 32 de cada 100 negocios que estaban abiertos en mayo de 2019 ya habían cerrado para septiembre de 2020, entre el sargazo y la pandemia.
+
+Y luego está la parte que nadie pone en el folleto.
+
+La primera es dónde se queda el dinero. Los críticos del modelo lo llaman economía de enclave. Un análisis publicado por CLACSO sobre el turismo dominicano estima que alrededor del 80% de lo que se genera en este modelo termina saliendo del país, hacia las sedes de las cadenas, los operadores turísticos y los proveedores extranjeros. Es una estimación de quienes critican el sistema, no una auditoría oficial. Pero hay otro dato que viene de dentro del propio Estado. Un estudio de funcionarios de la administración tributaria dominicana, publicado en la revista del CIAT, encontró que entre 2005 y 2009 los hoteles todo incluido aportaban apenas el 0,9% de los ingresos del gobierno central. Muchos declaraban baja rentabilidad o pérdidas recurrentes, financiadas en gran parte con deuda que no venía de bancos locales. El huésped ve un hotel lleno. El fisco ve una empresa que casi nunca gana dinero.
+
+La segunda es quién sirve el cóctel. En Cancún y la Riviera Maya, un reportaje del diario Por Esto de abril de 2025 recogió que muchos trabajadores hoteleros ganan entre 7.000 y 10.000 pesos mexicanos al mes, unos 400 a 550 dólares, con jornadas que superan las doce horas contando el transporte. Mientras tanto, una sola noche en algunos de esos hoteles puede costar hasta 24.000 pesos. Una noche del huésped cuesta más del doble que un mes del camarista. Y según la consultora Expantista, una familia de cuatro personas en Cancún necesita al menos 40.199 pesos al mes para cubrir sus gastos básicos.
+
+La tercera es lo que hay dentro del vaso. Bebida ilimitada significa que el resort compra alcohol en volúmenes enormes y tiene todo el incentivo del mundo para comprarlo barato. Casi siempre eso solo quiere decir marcas de la casa. Pero a veces la historia es más oscura. En enero de 2017, Abbey Conner, una joven de 20 años de Wisconsin, perdió el conocimiento junto a su hermano poco después de beber en el bar de la piscina del Iberostar Paraíso del Mar, en Playa del Carmen, en el primer día de las vacaciones familiares. Falleció días después. Su familia demandó al resort alegando que el alcohol estaba adulterado. Es una acusación de la familia, no una sentencia. Pero el caso, junto con otras denuncias, llevó al Departamento de Estado de Estados Unidos a presionar a las autoridades mexicanas para inspeccionar establecimientos, y dos bares terminaron clausurados.
+
+Ninguna de estas tres cosas sale en la foto de la piscina infinita.
+
+Ahora vamos al caso que resume todo el modelo, de principio a fin.
+
+En 2006, Bruce Wardinski, un ejecutivo hotelero estadounidense que ya había fundado y vendido otra empresa de hoteles, creó Playa Hotels and Resorts con una idea muy concreta. Comprar resorts todo incluido en México, Jamaica y República Dominicana, renovarlos y ponerles encima marcas conocidas por los turistas estadounidenses, como Hyatt Ziva y Hyatt Zilara. Playa era la dueña del edificio. Hyatt ponía el nombre.
+
+En 2017 Playa salió a bolsa fusionándose con una sociedad creada para ese fin. En 2020 llegó la pandemia, los resorts cerraron y la empresa perdió 262,4 millones de dólares en un solo año. En enero de 2021 tuvo que salir a pedir 138 millones de dólares a los inversionistas para seguir adelante. Sobrevivió. Para 2024 ya estaba de vuelta, con 302,8 millones de beneficio operativo en sus resorts propios.
+
+Y en febrero de 2025 llegó la oferta. Hyatt, la marca que llevaba años poniendo su nombre en los resorts de Playa, decidió comprar la empresa entera. Pagó trece dólares con cincuenta centavos por acción, unos 2.600 millones de dólares contando unos 900 millones de deuda. Una prima de alrededor del 40% sobre el precio de la acción.
+
+Hasta aquí parece la historia de una marca que por fin se queda con los hoteles. Pero lo que pasó después es la lección de todo este video.
+
+Pocos meses más tarde, Hyatt anunció que vendía los edificios. Quince resorts todo incluido en México, República Dominicana y Jamaica, por 2.000 millones de dólares, a Tortuga Resorts, una sociedad formada por los fondos KSL Capital Partners y Rodina. Y como parte del trato, Hyatt firmó contratos de gestión a 50 años para 13 de esos 15 resorts. Puede cobrar hasta 143 millones de dólares adicionales si los hoteles cumplen ciertas metas. Hyatt espera ganar entre 60 y 65 millones de dólares al año de beneficio operativo a partir de 2027 con el negocio de gestión y sus operaciones turísticas asociadas.
+
+Hyatt compró la empresa entera, se quedó con el nombre, los contratos y la operación, y les dejó a otros la deuda, los huracanes y las reformas del techo. Es el tercer camino del que hablamos al principio, llevado al extremo. El dueño del edificio pone el capital y asume el riesgo. El dueño de la pulsera cobra cada año durante medio siglo.
+
+Y esta idea tiene raíces antiguas. El modelo nació en 1950 en Alcudia, en la isla de Mallorca, cuando un belga llamado Gérard Blitz montó unas 200 tiendas de campaña, en un terreno sin agua corriente ni electricidad, para un club de vacaciones a precio fijo. Ese club se convirtió en Club Med. En 1957 inventaron su famoso collar de cuentas de colores, que servía como única moneda dentro del club para pagar las bebidas en el bar. A mediados de los años setenta, en Jamaica, el empresario John Issa tomó un hotel en Negril basado en ese mismo modelo, donde los huéspedes pagaban sus tragos con dientes de tiburón y cuentas. En 1978 dio el paso final e incluyó todas las bebidas en el precio. Desde entonces el truco es el mismo. Que el cliente deje de pensar en dinero mientras está dentro, porque ya lo dejó todo en la puerta.
+
+Entonces, si lo haces bien, ¿cuánto ganas?
+
+Hagamos las cuentas con un resort de 500 habitaciones.
+
+Primer escenario, un resort de gama media en Punta Cana o Cancún. Construirlo te cuesta unos 250.000 dólares por habitación, es decir, unos 125 millones de dólares. Supongamos que cobras 300 dólares netos de paquete por habitación y por noche, y que llenas el 75% del año. Eso da unos 41 millones de dólares de ingresos por paquete. Si los extras fuera del paquete pesan lo mismo que en Playa, alrededor del 13% del total, tu ingreso total sube a unos 47 millones. Con un margen operativo del 34%, te quedan unos 16 millones al año antes de pagar intereses, impuestos y reformas. Recuperas la inversión en unos ocho años, y eso si no pasa nada.
+
+Segundo escenario, un resort de gama alta parecido a los de Playa. Construirlo te cuesta unos 400.000 dólares por habitación, unos 200 millones en total. Cobras unos 450 dólares netos por noche, que es más o menos lo que implican las cifras de Playa en 2024, con una ocupación del 73,6%. Ingresas unos 60 millones por paquete y unos 69 millones en total. Con el mismo margen del 34%, ganas unos 23,6 millones al año. Recuperas la inversión en unos ocho años y medio. Cobras más caro, pero también pagaste más caro.
+
+Tercer escenario, el año malo. Mismo resort de gama media, pero llega un huracán, una alerta de viaje o una temporada de sargazo, y la ocupación cae al 55%. Tus ingresos totales bajan a unos 34,5 millones. Pero el buffet sigue abierto, los bares siguen funcionando y el espectáculo sigue en cartelera. Tu margen se desploma a algo como el 15%. Ganas unos 5 millones. A ese ritmo, recuperar los 125 millones te tomaría unos veinticuatro años. Y en veinticuatro años tienes que renovar el hotel entero por lo menos dos veces.
+
+Y hay un cuarto escenario que no aparece en ninguna tabla de ocupación. No construyes nada. No compras nada. Pones tu marca en el resort de otro, gestionas su operación y le cobras una comisión cada año, llueva o haga sol. Ese es el escenario que eligió Hyatt.
+
+El huésped cree que ganó porque comió sin límite durante una semana. El dueño del edificio cree que ganó porque el hotel estaba lleno. Y el que de verdad ganó es el que vendió la pulsera y se quedó fuera del hotel.
+
+Gracias por llegar hasta aquí. Si este video te resultó útil, déjanos un like, y suscríbete si quieres ver más contenido como este de Economía de Poseer. Nos vemos en el próximo video.
+
+Las cifras de este video fueron recopiladas de distintas fuentes, tienen fines meramente informativos y no sustituyen el asesoramiento profesional. Si notas algún error o algo que haya cambiado con el tiempo, déjanoslo saber en los comentarios.
+
+---
+
+## ⚠️ VERIFICAR ANTES DE GRABAR
+
+- **Margen 34% y 302,8 M USD (Owned Resort EBITDA de Playa 2024), Net Package RevPAR 332,20 USD, ocupación 73,6%**: tomados del comunicado de resultados 2024 de Playa vía prensa financiera, no leídos directamente del 10-K. Confirmar en el 10-K FY2024 (SEC EDGAR).
+- **Ingreso fuera del paquete ~13% (97,6 M sobre 762,2 M)**: es la cifra del portafolio *comparable* de Playa, no la consolidada. Válida como proporción, pero confirmar.
+- **Tarifa neta ~450 USD/noche en el escenario 2**: cálculo propio (332,20 ÷ 0,736). Playa no la publica como cifra anual en lo que encontré; el ADR del 4.º trimestre 2024 fue 439,94 USD.
+- **300 USD/noche y 250.000 USD/habitación en el escenario 1, margen 15% en el escenario 3**: supuestos ilustrativos razonables, no datos publicados. El costo por habitación se estimó con NH Riviera Cancún, Xcaret México y el proyecto de Marriott de 2019.
+- **NH Riviera Cancún 130 M USD / 550 hab.**: fuente Hosteltur, fecha de la nota no confirmada.
+- **"Alrededor del 80% sale del país"**: estimación de un texto crítico publicado por CLACSO, sin metodología de medición. En el guion ya se presenta como estimación de críticos; no reforzarla.
+- **Salarios 7.000–10.000 MXN/mes y noche hasta 24.000 MXN**: reportaje de Por Esto (abril 2025), testimonios, no estadística oficial. La conversión a USD (~400–550) depende del tipo de cambio del día de grabación.
+- **Caso Abbey Conner**: los detalles (enero 2017, Iberostar Paraíso del Mar, demanda, dos bares clausurados) vienen de prensa estadounidense. Es un tema legalmente sensible; revisar la redacción y confirmar el estado actual de la demanda.
+- **Prima ~40% de Hyatt sobre Playa, venta a Tortuga por 2.000 M, 13 de 15 contratos a 50 años, hasta 143 M adicionales, EBITDA esperado 60–65 M en 2027**: noticias de 2025; confirmar que la venta a Tortuga se cerró.
+- **Fundación de Playa en 2006**: una fuente da 2016; la mayoría dice 2006.
+- **John Issa / Negril / dientes de tiburón / 1978**: fuentes jamaicanas y de la propia empresa; la etiqueta de "primero del mundo" está disputada, por eso el guion no la usa.
