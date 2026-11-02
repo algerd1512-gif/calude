@@ -4,23 +4,23 @@ Vậy là bạn muốn sở hữu một chiếc xe container. Một chiếc đ�
 
 Không hẳn vậy.
 
-Theo khảo sát được Ngân hàng Phát triển châu Á dẫn lại, từ 30 đến 50% xe tải ở Việt Nam chạy rỗng ở chiều về. Một khảo sát khác của Ngân hàng Thế giới còn đưa ra con số 50 đến 70%. Tức là có những chiếc xe mà cứ hai ki-lô-mét lăn bánh thì một ki-lô-mét không ai trả tiền. Tiền dầu vẫn trả, tiền cao tốc vẫn trả, lương tài xế vẫn trả. Hết video này, bạn sẽ hiểu vì sao trong ngành xe container, người kiếm tiền chắc chắn nhất thường không phải người đứng tên chiếc xe, và vì sao chuyến về mới là chuyến quyết định bạn lời hay lỗ.
+Theo Hiệp hội Vận tải Thành phố Hồ Chí Minh, tỷ lệ xe chạy rỗng hiện nay dao động quanh 30%. Một nghiên cứu của Ngân hàng Thế giới, dựa trên khảo sát toàn quốc, từng ghi nhận tỷ lệ xe chạy không tải ở chặng về lên tới 50 đến 70%. Ở mức đó, có những chiếc xe mà cứ hai ki-lô-mét lăn bánh thì một ki-lô-mét không ai trả tiền. Tiền dầu vẫn trả, tiền cao tốc vẫn trả, lương tài xế vẫn trả. Hết video này, bạn sẽ hiểu vì sao trong ngành xe container, người kiếm tiền chắc chắn nhất thường không phải người đứng tên chiếc xe, và vì sao chuyến về mới là chuyến quyết định bạn lời hay lỗ.
 
 Trước tiên, một chiếc xe container giá bao nhiêu.
 
-Câu trả lời phụ thuộc vào việc bạn chấp nhận một chiếc xe bao nhiêu tuổi. Ở tầng thấp nhất là đầu kéo Mỹ đã qua sử dụng, những cái tên như International hay Freightliner, chạy hết một đời ở Mỹ rồi được nhập về Việt Nam chạy đời thứ hai. Một chiếc đời cũ như vậy thường được rao trong khoảng 600 triệu đến hơn 900 triệu đồng, tuỳ năm sản xuất và tình trạng máy. Rẻ, khoẻ, dễ sửa, và tốn dầu đúng như tuổi của nó.
+Câu trả lời phụ thuộc vào việc bạn chấp nhận một chiếc xe bao nhiêu tuổi. Ở tầng thấp nhất là đầu kéo Mỹ đã qua sử dụng đời 2012 đến 2015, những cái tên như International hay Freightliner, chạy hết một đời ở Mỹ rồi được nhập về Việt Nam chạy đời thứ hai. Một chiếc International đời 2012 được rao khoảng 670 triệu đồng, một chiếc máy Maxxforce đời 2013 khoảng 648 triệu. Rẻ, khoẻ, dễ sửa, và tốn dầu đúng như tuổi của nó.
 
-Tầng giữa là đầu kéo mới của Trung Quốc như Howo hay Chenglong, loại bạn thấy nhiều nhất trên đường hiện nay. Một chiếc mới thường rơi vào khoảng một phẩy một đến một phẩy năm tỷ đồng. Máy mới, bảo hành chính hãng, và quan trọng hơn là ngân hàng chịu cho vay dễ hơn với một chiếc xe có hoá đơn mới tinh.
+Tầng giữa là đầu kéo mới của Trung Quốc như Howo hay Chenglong, loại bạn thấy nhiều nhất trên đường hiện nay. Theo bảng giá đại lý, một chiếc Chenglong một cầu dòng H5 bản 270 mã lực niêm yết 810 triệu đồng. Nhưng để kéo container nặng, người ta thường chọn xe hai cầu. Dòng H7 bản 385 mã lực niêm yết một tỷ một trăm bảy mươi triệu, bản 420 mã lực một tỷ hai trăm triệu, bản 470 mã lực MegaX một tỷ ba trăm năm mươi triệu đồng. Máy mới, bảo hành chính hãng, và quan trọng hơn là ngân hàng chịu cho vay dễ hơn với một chiếc xe có hoá đơn mới tinh.
 
-Tầng trên cùng là đầu kéo Mỹ hoặc châu Âu đời mới. Để bạn hình dung, ngay tại Mỹ, một chiếc Freightliner Cascadia đời 2025 đã qua sử dụng được rao giá 120.500 đô, tức hơn ba tỷ đồng, đó là chưa tính tiền đưa nó qua Thái Bình Dương và đóng thuế nhập khẩu. Gần như không chủ xe nhỏ nào ở Việt Nam bắt đầu từ tầng này.
+Điều thú vị là đầu kéo Mỹ cũ nhưng đời mới hơn lại đắt ngang xe Trung Quốc mới tinh. Một chiếc Freightliner Cascadia đời 2018 đến 2021 đã qua sử dụng được rao từ một tỷ một trăm tám mươi triệu đến một tỷ ba trăm năm mươi triệu đồng. Còn ngay tại Mỹ, một chiếc Cascadia đời 2025 đã qua sử dụng được rao giá 120.500 đô, khoảng ba phẩy một tỷ đồng theo tỷ giá cuối tháng 10 năm 2026, đó là chưa tính tiền đưa nó qua Thái Bình Dương và đóng thuế nhập khẩu. Gần như không chủ xe nhỏ nào ở Việt Nam bắt đầu từ tầng đó.
 
-Rồi bạn còn cần cái phần phía sau. Đầu kéo chỉ là cái đầu, nó không chở được gì. Một chiếc sơ mi rơ moóc để đặt container lên thường thêm khoảng 250 đến 450 triệu đồng nữa. Còn bản thân cái container thì không phải của bạn. Nó thuộc về hãng tàu, và chi tiết nhỏ đó sẽ quay lại làm phiền bạn ở phần sau của video này.
+Rồi bạn còn cần cái phần phía sau. Đầu kéo chỉ là cái đầu, nó không chở được gì. Một chiếc sơ mi rơ moóc để đặt container lên tốn thêm vài trăm triệu đồng nữa. Còn bản thân cái container thì không phải của bạn. Nó thuộc về hãng tàu, và chi tiết nhỏ đó sẽ quay lại làm phiền bạn ở phần sau của video này.
 
 Cộng lại, một bộ xe container mới hoàn chỉnh rơi vào khoảng một phẩy năm tỷ đồng. Phần lớn người mua không trả hết số đó bằng tiền mặt. Ngân hàng hoặc công ty tài chính cho vay khoảng 70% giá trị xe, chiếc xe nằm lại làm tài sản thế chấp, giấy tờ gốc nằm trong két ngân hàng cho tới ngày bạn trả xong đồng cuối cùng. Bạn lái chiếc xe. Ngân hàng giữ chiếc xe.
 
 Có xe rồi thì vào ngành bằng cách nào.
 
-Đây là chỗ nhiều người mới mua xe bị bất ngờ, vì sở hữu một chiếc xe container không có nghĩa là bạn được phép đem nó đi chở hàng thuê. Muốn kinh doanh vận tải, bạn cần đăng ký kinh doanh, xin giấy phép kinh doanh vận tải bằng xe ô tô, rồi xin phù hiệu cho từng xe. Theo Nghị định 10 năm 2020, xe container còn phải lắp thiết bị giám sát hành trình và camera, dữ liệu truyền thẳng về cơ quan quản lý. Mỗi xe phải niêm yết tên và số điện thoại của đơn vị kinh doanh ngay trên cửa cabin. Nói cách khác, nhà nước muốn biết chiếc xe của bạn đang ở đâu, đang chạy bao nhanh, và ai đang cầm lái, vào mọi lúc.
+Đây là chỗ nhiều người mới mua xe bị bất ngờ, vì sở hữu một chiếc xe container không có nghĩa là bạn được phép đem nó đi chở hàng thuê. Muốn kinh doanh vận tải, bạn cần đăng ký kinh doanh, xin giấy phép kinh doanh vận tải bằng xe ô tô, rồi xin phù hiệu cho từng xe. Theo quy định hiện hành, xe đầu kéo còn bắt buộc lắp thiết bị giám sát hành trình và camera ghi hình người lái, dữ liệu truyền thẳng về cơ quan quản lý. Mỗi xe phải niêm yết tên và số điện thoại của đơn vị kinh doanh ngay trên cửa cabin. Nói cách khác, nhà nước muốn biết chiếc xe của bạn đang ở đâu, đang chạy bao nhanh, và ai đang cầm lái, vào mọi lúc.
 
 Vì vậy, con đường thứ nhất là tự lập công ty hoặc hộ kinh doanh, tự lo giấy tờ, tự tìm khách. Giấy tờ thì làm được. Cái khó là khách. Các hãng tàu, công ty giao nhận và nhà máy lớn thích làm việc với những đội xe có vài chục đến vài trăm đầu kéo, vì họ cần một đơn vị nhận cùng lúc năm mươi container trong một buổi sáng, chứ không cần một người có đúng một chiếc xe và một số điện thoại.
 
@@ -32,7 +32,7 @@ Vậy tiền lời của một chiếc xe container thật sự đến từ đâ
 
 Trên giấy, cơ chế rất đơn giản. Chủ hàng trả cước cho mỗi chuyến container, từ cảng về kho hoặc từ nhà máy ra cảng. Bạn lấy tiền cước trừ đi chi phí, phần còn lại là lời. Vấn đề nằm ở chỗ tiền cước được trả theo chuyến có hàng, còn chi phí thì chạy theo từng ki-lô-mét, và chạy theo từng ngày.
 
-Bắt đầu với chi phí theo ki-lô-mét. Một chiếc đầu kéo kéo container đầy hàng ăn khoảng 33 đến 35 lít dầu cho mỗi 100 ki-lô-mét, đó là mức của xe đời mới ở châu Âu và Mỹ. Xe cũ chạy ở Việt Nam thường ăn nhiều hơn. Cuối tháng 10 năm 2026, dầu diesel đang ở mức khoảng 29.250 đồng một lít. Nhân lên, bạn có khoảng một triệu đồng tiền dầu cho mỗi 100 ki-lô-mét, tức khoảng mười nghìn đồng cho mỗi ki-lô-mét bánh xe lăn.
+Bắt đầu với chi phí theo ki-lô-mét. Theo Hội đồng Quốc tế về Giao thông Sạch, xe đầu kéo trung bình ở châu Âu ăn khoảng 33 lít dầu cho mỗi 100 ki-lô-mét, xe đời mới nhất ở Mỹ khoảng 33 đến 36 lít. Đó là số liệu nước ngoài, vì Việt Nam chưa có định mức chính thức. Cũng theo tổ chức này, đầu kéo ở Trung Quốc trung bình ăn tới 44 lít, mà phần lớn xe mới trên đường Việt Nam hiện nay lại là xe Trung Quốc. Để khỏi bi quan quá, phần tính toán trong video này sẽ dùng mức 34 lít. Từ kỳ điều hành ngày 29 tháng 10 năm 2026, dầu diesel loại phổ biến ở vùng một có giá 30.240 đồng một lít. Nhân lên, bạn có khoảng một triệu đồng tiền dầu cho mỗi 100 ki-lô-mét, tức hơn mười nghìn đồng cho mỗi ki-lô-mét bánh xe lăn.
 
 Bây giờ thêm phí đường. Trên cao tốc Hà Nội Hải Phòng, theo biểu phí được báo chí đưa tin đầu tháng 10 năm 2026, xe container 40 phít thuộc nhóm 5 trả 870.000 đồng cho một lượt đi hết tuyến. Một chuyến từ cảng Hải Phòng lên Hà Nội rồi quay về là gần một phẩy bảy triệu đồng tiền phí, chưa tính dầu, chưa tính lương ai.
 
@@ -40,7 +40,7 @@ Và đây là lúc chuyến về bước vào câu chuyện. Hãy hình dung m�
 
 Nếu chiều về chạy rỗng, gần như toàn bộ tiền dầu và tiền phí của chiều về phải lấy từ tiền cước của chiều đi để bù vào. Một chiếc xe chạy rỗng một nửa quãng đường có thể vẫn có doanh thu đều đặn mỗi tháng, chủ xe vẫn thấy tiền về tài khoản đều đặn, trong khi phần lời thật sự đã bị chiều về ăn gần hết.
 
-Phần thú vị là chiều về rỗng ở ngành container còn có một lý do mà ngành xe tải thường không có. Như đã nói, cái container không phải của bạn, nó là của hãng tàu. Khi bạn kéo một container hàng nhập khẩu từ cảng về kho của chủ hàng, người ta rút hàng ra, và bạn phải kéo cái vỏ rỗng đó trả về bãi container của hãng tàu. Còn khi có lô hàng xuất khẩu, bạn lại phải đi lấy một vỏ rỗng khác từ bãi, kéo về nhà máy đóng hàng, rồi kéo ra cảng. Về lý thuyết, cách tiết kiệm nhất là dùng luôn cái vỏ vừa rút hàng nhập để đóng hàng xuất, khỏi phải chạy đi chạy lại. Theo Hiệp hội Doanh nghiệp dịch vụ Logistics Việt Nam, tỷ lệ container nhập khẩu được tái sử dụng để đóng hàng xuất khẩu ở Việt Nam chưa tới một phẩy năm phần trăm.
+Phần thú vị là chiều về rỗng ở ngành container còn có một lý do mà ngành xe tải thường không có. Như đã nói, cái container không phải của bạn, nó là của hãng tàu. Khi bạn kéo một container hàng nhập khẩu từ cảng về kho của chủ hàng, người ta rút hàng ra, và bạn phải kéo cái vỏ rỗng đó trả về bãi container của hãng tàu. Còn khi có lô hàng xuất khẩu, bạn lại phải đi lấy một vỏ rỗng khác từ bãi, kéo về nhà máy đóng hàng, rồi kéo ra cảng. Về lý thuyết, cách tiết kiệm nhất là dùng luôn cái vỏ vừa rút hàng nhập để đóng hàng xuất, khỏi phải chạy đi chạy lại. Theo ông Nguyễn Duy Minh, Tổng Thư ký Hiệp hội Doanh nghiệp dịch vụ Logistics Việt Nam, tỷ lệ container nhập khẩu được tái sử dụng để đóng hàng xuất khẩu ở Việt Nam chưa tới một phẩy năm phần trăm.
 
 Một phẩy năm phần trăm. Phần còn lại là những chuyến kéo vỏ rỗng chạy qua chạy lại giữa cảng, bãi và nhà máy, và phần lớn những chuyến đó chỉ được trả tiền rất ít, hoặc tính gộp vào chuyến có hàng.
 
@@ -50,7 +50,7 @@ Một phẩy năm phần trăm. Phần còn lại là những chuyến kéo vỏ
 
 Rồi đến loại chi phí thứ hai, chi phí theo ngày. Tiền trả góp ngân hàng không quan tâm hôm nay xe bạn chạy mấy chuyến. Lương tài xế, bảo hiểm, phí bảo trì đường bộ, phí quản lý nếu bạn gửi xe vào công ty, tất cả đều chạy theo tháng. Nghĩa là mỗi giờ chiếc xe đứng yên là một giờ bạn trả tiền cho một tài sản không làm ra đồng nào.
 
-Và chiếc xe container đứng yên rất nhiều. Cảng Cát Lái ở Thành phố Hồ Chí Minh, cảng container bận rộn nhất cả nước, đón khoảng 16.400 lượt xe tải mỗi ngày, giờ cao điểm có thể lên tới 22.000 lượt. Cát Lái không có đường sắt và gần như chỉ có một tuyến đường bộ dẫn vào. Báo chí từng ghi nhận xe tải phải chờ từ hai đến ba tiếng mới tới được cổng cảng. Vào được cổng rồi thì còn chờ nâng hạ, chờ làm thủ tục. Một chuyến chỉ vài chục ki-lô-mét từ Bình Dương xuống cảng có thể ngốn nguyên một buổi.
+Và chiếc xe container đứng yên rất nhiều. Cảng Cát Lái ở Thành phố Hồ Chí Minh, cảng container bận rộn nhất cả nước, đón trung bình từ 19.000 đến 22.000 lượt xe container mỗi ngày, cao điểm lên tới 26.000 lượt. Cát Lái không có đường sắt và gần như chỉ có một tuyến đường bộ dẫn vào. Một tài xế kể với báo chí năm 2026 rằng có lúc chờ hai đến ba tiếng mà xe vẫn chưa nhích nổi 500 mét. Vào được cổng rồi thì còn chờ nâng hạ, chờ làm thủ tục. Một chuyến chỉ vài chục ki-lô-mét từ Bình Dương xuống cảng có thể ngốn nguyên một buổi.
 
 Hãy nghĩ về nó như một người bán hàng thuê một sạp ở chợ theo ngày, nhưng mỗi ngày chỉ được mở sạp nửa buổi, nửa buổi còn lại phải xếp hàng chờ ban quản lý chợ mở cổng. Tiền thuê sạp vẫn tính đủ một ngày.
 
@@ -58,7 +58,7 @@ Vậy nếu chủ xe đang loay hoay giữa chiều về rỗng và giờ chờ 
 
 Thứ nhất là ngân hàng. Khoản vay mua xe có lãi suất được tính từ ngày giải ngân, và chiếc xe là tài sản thế chấp. Nếu bạn làm ăn tốt, ngân hàng thu đủ lãi. Nếu bạn làm ăn không tốt, ngân hàng thu lại chiếc xe. Báo Pháp Luật Thành phố Hồ Chí Minh từng đưa tin về những doanh nghiệp vận tải bị ngân hàng thu giữ xe sau giai đoạn giãn cách vì dịch, khi xe nằm bãi hàng tháng trời mà tiền trả góp thì vẫn tới hạn.
 
-Thứ hai là cây dầu. Mỗi ki-lô-mét xe lăn bánh, có hàng hay không có hàng, cây dầu đều thu khoảng mười nghìn đồng. Họ không cần biết chuyến đó có cước hay không.
+Thứ hai là cây dầu. Mỗi ki-lô-mét xe lăn bánh, có hàng hay không có hàng, cây dầu đều thu hơn mười nghìn đồng. Họ không cần biết chuyến đó có cước hay không.
 
 Thứ ba là trạm thu phí. Trạm thu phí cũng không phân biệt container đầy hay container rỗng. Chi phí này lớn tới mức báo Pháp Luật từng ghi nhận những tuyến tỉnh lộ ở Hải Phòng và Hải Dương chật kín xe container chạy vòng để né trạm, chấp nhận đường xấu hơn và xa hơn để giữ lại vài trăm nghìn đồng mỗi lượt. Một lãnh đạo ngành giao thông từng nói phí BOT của Việt Nam rẻ nhất Đông Nam Á. Điều đó có thể đúng, nhưng đối với một chủ xe phải trả phí cả hai chiều trong khi chỉ được trả cước một chiều, so sánh với Đông Nam Á không giúp được nhiều.
 
@@ -82,7 +82,7 @@ Celadon là một hãng vận tải xe đầu kéo có trụ sở ở Indianapol
 
 Mô hình đó tăng trưởng rất nhanh. Từ năm 2013 đến năm 2016, đội đầu kéo của Quality tăng từ khoảng 750 chiếc lên hơn 11.000 chiếc. Rồi thị trường vận tải chững lại. Theo các công tố viên Mỹ, Quality bị kẹt lại với số xe trị giá hơn 70 triệu đô mà không cho ai thuê được nữa. Thay vì ghi nhận khoản lỗ, công ty thực hiện các giao dịch hoán đổi xe với một đại lý xe tải ở Indianapolis để che giấu nó trên sổ sách. Năm 2019, cựu chủ tịch của Quality là Danny Williams nhận tội âm mưu gian lận chứng khoán.
 
-Ngày 8 tháng 12 năm 2019, Celadon và 25 công ty liên quan nộp đơn phá sản và tuyên bố ngừng hoạt động ngay lập tức. Đây là vụ phá sản lớn nhất trong lịch sử ngành vận tải xe đầu kéo nguyên chuyến ở Mỹ. Gần 4.000 người mất việc, trong đó gần 3.000 người là tài xế. Công ty yêu cầu tài xế giao nốt những chuyến hàng đang chạy dở, và báo chí Mỹ ghi lại cảnh những chiếc xe mang logo Celadon bị kéo đi khỏi các trạm dừng chân ven xa lộ. Về sau, Celadon chấp nhận nộp khoảng 42 triệu đô để giải quyết cáo buộc gian lận.
+Ngày 8 tháng 12 năm 2019, Celadon và 25 công ty liên quan nộp đơn phá sản và tuyên bố ngừng hoạt động ngay lập tức. Đây là vụ phá sản lớn nhất trong lịch sử ngành vận tải xe đầu kéo nguyên chuyến ở Mỹ. Gần 4.000 người mất việc, trong đó gần 3.000 người là tài xế. Công ty yêu cầu tài xế giao nốt những chuyến hàng đang chạy dở, và báo chí Mỹ ghi lại cảnh những chiếc xe mang logo Celadon bị kéo đi khỏi các trạm dừng chân ven xa lộ. Về sau, theo thỏa thuận với Bộ Tư pháp Mỹ, Celadon phải bồi hoàn bốn mươi hai phẩy hai triệu đô cho các cổ đông bị thiệt hại.
 
 Điều đáng chú ý trong câu chuyện của Celadon nằm ở chỗ tiền đã chảy về đâu khi mọi thứ còn suôn sẻ. Khi cước tốt, công ty thu tiền thuê xe đều đặn từ hàng nghìn tài xế. Khi cước xấu, người tài xế vẫn phải trả tiền thuê, còn công ty thì có xe để thu hồi. Chiếc xe đầu kéo luôn sinh ra tiền, chỉ là tiền không nhất thiết chảy về người ngồi sau vô lăng.
 
@@ -90,7 +90,7 @@ Vậy làm đúng thì một chiếc xe container kiếm được bao nhiêu.
 
 Hãy lấy một bộ xe mới giá một phẩy năm tỷ đồng làm ví dụ. Bạn bỏ ra 450 triệu tiền túi, vay một tỷ không trăm năm mươi triệu đồng trong năm năm với lãi suất khoảng 10% một năm. Mỗi tháng bạn trả ngân hàng khoảng 22 triệu đồng cả gốc lẫn lãi. Thuê một tài xế mất khoảng 25 triệu. Bảo hiểm, đăng kiểm, phí bảo trì đường bộ, thiết bị giám sát và phí quản lý gửi xe cộng lại khoảng sáu triệu. Trích trước tiền lốp và sửa chữa thêm khoảng mười triệu. Tổng cộng, chiếc xe tốn khoảng 63 triệu đồng mỗi tháng trước khi lăn bánh mét đầu tiên.
 
-Giả sử chiếc xe chạy khoảng 8.000 ki-lô-mét một tháng. Ở mức mười nghìn đồng một ki-lô-mét, tiền dầu là khoảng 82 triệu. Thêm khoảng 15 triệu tiền cao tốc và trạm thu phí. Tổng chi phí một tháng vào khoảng 160 triệu đồng.
+Giả sử chiếc xe chạy khoảng 8.000 ki-lô-mét một tháng. Với mức 34 lít cho mỗi 100 ki-lô-mét và giá dầu 30.240 đồng, tiền dầu là khoảng 82 triệu. Nếu xe của bạn ăn 44 lít như mức trung bình ở Trung Quốc, con số đó lên khoảng 106 triệu. Thêm khoảng 15 triệu tiền cao tốc và trạm thu phí. Với mức dầu lạc quan, tổng chi phí một tháng vào khoảng 160 triệu đồng.
 
 Kịch bản thứ nhất là chiếc xe chạy rỗng gần một nửa quãng đường, kiểu thường gặp ở chủ xe lẻ phụ thuộc vào người khác chia hàng. Giả sử doanh thu cước khoảng 150 triệu đồng một tháng. Nghe rất nhiều tiền, nhưng bạn lỗ khoảng 10 triệu mỗi tháng. Bạn không thấy khoản lỗ đó ngay, vì tháng nào cũng có 150 triệu chảy vào tài khoản. Bạn chỉ thấy nó khi đến kỳ thay lốp mà quỹ sửa chữa đã bị lấy ra bù tiền dầu từ lâu.
 
@@ -98,7 +98,7 @@ Kịch bản thứ hai là chiếc xe ghép được chuyến về cho phần l�
 
 Kịch bản thứ ba là con đường của rất nhiều chủ xe nhỏ ở Việt Nam. Bạn tự lái. Bạn bỏ được 25 triệu tiền lương tài xế ra khỏi bảng chi phí, và kịch bản thứ nhất từ lỗ 10 triệu chuyển thành lời khoảng 15 triệu mỗi tháng. Nhưng hãy nhìn kỹ con số đó. Bạn bỏ ra 450 triệu tiền vốn, gánh một khoản nợ hơn một tỷ đồng, lái xe mười tiếng một ngày, và nhận về ít hơn mức lương mà chính bạn sẽ được trả nếu đi lái thuê cho người khác. Thứ bạn mua bằng một phẩy năm tỷ đồng, xét cho cùng, là một công việc.
 
-Còn bây giờ, hãy nhìn năm năm đó từ phía những người còn lại. Ngân hàng thu về khoảng 290 triệu tiền lãi, dù bạn rơi vào kịch bản nào. Trạm thu phí thu khoảng 900 triệu. Và cây dầu thu về khoảng năm tỷ đồng, gấp hơn ba lần giá của chính chiếc xe.
+Còn bây giờ, hãy nhìn năm năm đó từ phía những người còn lại. Ngân hàng thu về khoảng 290 triệu tiền lãi, dù bạn rơi vào kịch bản nào. Trạm thu phí thu khoảng 900 triệu. Và cây dầu thu về gần năm tỷ đồng, gấp hơn ba lần giá của chính chiếc xe, đó là với mức tiêu hao lạc quan.
 
 Chiếc xe container lúc nào cũng chạy đủ cả hai chiều. Chỉ là ở chiều nào cũng có người thu được tiền, còn người đứng tên chiếc xe thì phải chờ xem chiều về có hàng hay không.
 
@@ -110,14 +110,8 @@ Những con số trong video được tổng hợp từ nhiều nguồn khác nh
 
 ## ⚠️ CẦN KIỂM CHỨNG TRƯỚC KHI LỒNG TIẾNG
 
-1. **Giá xe tại Việt Nam** (đầu kéo Mỹ cũ 600–900+ triệu; Howo/Chenglong mới 1,1–1,5 tỷ; sơ mi rơ moóc 250–450 triệu): chưa tìm được bảng giá Việt Nam đáng tin, chỉ là ước lượng thị trường. Nên tra Chợ Tốt Xe hoặc hỏi đại lý Howo/Chenglong.
-2. **Cascadia 2025 rao 120.500 USD ≈ "hơn ba tỷ"**: giá lấy từ tin rao trên TractorHouse, còn số quy đổi phụ thuộc tỷ giá (khoảng 26.000 đ/USD).
-3. **Tỷ lệ xe chạy rỗng 30–50% (ADB) và 50–70% (WB)**: được trích lại qua báo chí, nguồn từ năm 2019 trở về trước. Nên tìm báo cáo gốc.
-4. **Tỷ lệ container nhập khẩu được tái sử dụng <1,5%**: đây là phát biểu của ông Nguyễn Duy Minh (VLA), chưa rõ năm. Có thể dẫn kèm tên người nói.
-5. **Diesel 29.250 đ/lít**: giá kỳ 23–26/10/2026, sẽ đổi sau mỗi kỳ điều hành. Tra lại Petrolimex trước khi lồng tiếng.
-6. **Mức tiêu hao 33–35 lít/100 km**: đây là số liệu đầu kéo châu Âu/Mỹ (ICCT và nguồn Đức). Việt Nam chưa có định mức chính thức.
-7. **Phí cao tốc Hà Nội–Hải Phòng 870.000 đ/lượt (nhóm 5)**: theo tin báo chí đầu tháng 10/2026. Hải Phòng đang đề xuất giảm phí cho xe container nên mức này có thể đổi.
-8. **Cát Lái 16.400 lượt/ngày, chờ 2–3 giờ**: số liệu giai đoạn 2019–2021, có thể đã cải thiện. Nên đối chiếu với Tân Cảng Sài Gòn.
-9. **Nghị định 10/2020 bắt buộc camera trên xe container**: nên đối chiếu điều khoản và lộ trình áp dụng, vì quy định vận tải đã được sửa đổi sau Luật Đường bộ 2024.
-10. **Toàn bộ số ở phần chốt sổ** (phí quản lý, lốp/sửa chữa 10 triệu, cao tốc 15 triệu/tháng, 8.000 km/tháng, doanh thu 150/210 triệu): đây là **giả định minh hoạ** do mình dựng, không phải số liệu khảo sát. Nên đưa cho một chủ xe thật xem và chỉnh lại.
-11. **Celadon nộp ~42 triệu USD**: các nguồn (DOJ, FleetOwner) ghi số làm tròn khác nhau, cần đối chiếu thông cáo của DOJ.
+1. **Giá sơ mi rơ moóc ("vài trăm triệu")**: chưa có nguồn, cần hỏi đại lý. Giá đầu kéo đã khớp với bảng giá đại lý: Chenglong của Ô tô An Phước; đầu kéo Mỹ cũ của Ô tô An Sương và Ô tô Hoàng Long.
+2. **Diesel DO 0,05S-II 30.240 đ/lít (vùng 1, kỳ 29/10/2026)**: kỳ điều hành tiếp theo vào 15h ngày 5/11/2026. Tra lại ngay trước khi thu âm và cập nhật luôn tiền dầu ở phần chốt sổ (82 triệu ở mức 34 l/100 km, 106 triệu ở mức 44 l/100 km).
+3. **Phí cao tốc Hà Nội–Hải Phòng 870.000 đ/lượt (nhóm 5)**: đúng ở thời điểm hiện tại. Đang có đề xuất giảm 20% cho xe tải nặng nhưng chưa có quyết định chính thức, nên kiểm tra lại trước khi thu âm.
+4. **Toàn bộ số ở phần chốt sổ** (phí quản lý, lốp/sửa chữa 10 triệu, cao tốc 15 triệu/tháng, 8.000 km/tháng, doanh thu 150/210 triệu): đây là **giả định minh hoạ**, không có nguồn công khai để kiểm. Vẫn cần một chủ xe thật xem lại.
+5. **Tỷ giá cho Cascadia 2025 (≈ 3,1 tỷ)**: tính theo tỷ giá Vietcombank ngày 29/10/2026 (25.640 mua / 26.020 bán).
