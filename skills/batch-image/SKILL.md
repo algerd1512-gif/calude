@@ -1,6 +1,6 @@
 ---
 name: batch-image
-description: Tạo bộ ảnh hàng loạt từ danh sách prompt đánh số ("001. ...") qua MCP server auto-image: gửi vào hàng đợi theo lô, lưu ảnh thành 001.png, 002.png... trong thư mục dự án, tự kiểm tra và tạo lại ảnh có chữ (reads "...") bị sai, chạy tiếp khi bị ngắt, và báo cáo cuối. Dùng cho mọi kênh (Kinh Tế Học, What If...). Dùng khi người dùng nói "tạo ảnh hàng loạt", "chạy batch ảnh", "batch-image", dán danh sách prompt đánh số và muốn ra ảnh, hoặc "tạo lại ảnh 012, 045".
+description: "Tạo bộ ảnh hàng loạt từ danh sách prompt đánh số (\"001. ...\") qua MCP server auto-image: gửi vào hàng đợi theo lô, lưu ảnh thành 001.png, 002.png... trong thư mục dự án, tự kiểm tra và tạo lại ảnh có chữ (reads \"...\") bị sai, chạy tiếp khi bị ngắt, và báo cáo cuối. Dùng cho mọi kênh (Kinh Tế Học, What If...). Dùng khi người dùng nói \"tạo ảnh hàng loạt\", \"chạy batch ảnh\", \"batch-image\", dán danh sách prompt đánh số và muốn ra ảnh, hoặc \"tạo lại ảnh 012, 045\"."
 ---
 
 # batch-image
